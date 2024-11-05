@@ -60,7 +60,7 @@ Your work will be evaluated based on:
 
 ## Deadline
 
-The deadline for submitting your exploration is **November 7**. Please ensure that all submissions are completed before this time.
+The deadline for submitting your exploration is **November 18**. Please ensure that all submissions are completed before this time.
 
 If you have any questions, feel free to reach out!
 
